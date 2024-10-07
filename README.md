@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning how to code in C# and Python
 - 📫 You can reach me with my discord: @dangercat_
 - 😄 Pronouns: Let me she/them titties.
-- ⚡ Fun fact: I am autistic.
+- ⚡ Fun fact: I am autistic and I also have adhd.
   
